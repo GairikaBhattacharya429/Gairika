@@ -1,0 +1,2 @@
+# Gairika
+Seeking knowledge.
